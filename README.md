@@ -35,8 +35,24 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Articles to be enquired of, by the church-vvardens, and sworne-men, in the visitation of the right w
+
+1. The tenour of the Oath of the Churchwardens and Sworne-men.
+
 #####Body#####
+
+1. ARTICLES
+
+    _ Touching the Church.
+
+    _ Touching the Miniſtrie, ſeruice, and Sacraments.
+
+    _ Touching Schoolemaſters.
+
+    _ Touching the Pariſh Clarke, and Sexton.
+
+    _ Touching Pariſhioners.
+
+    _ Touching Church-wardens and Sworne-men.
 
 **Types of content**
 
